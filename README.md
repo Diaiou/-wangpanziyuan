@@ -1,8 +1,7 @@
 
 
 
-![社群介绍](https://user-images.githubusercontent.com/94828428/162938602-0e6a3b7d-23be-427b-b377-8f84d19cd5a3.png)
-![3951224432](https://user-images.githubusercontent.com/94828428/162938846-7ef46ca7-190e-4de7-a983-94cc74441746.png)
+![社群介绍](https://user-images.githubusercontent.com/94828428/162938602-0e6a3b7d-23be-427b-b377-8f84d19cd5a3.png)![3951224432](https://user-images.githubusercontent.com/94828428/162938846-7ef46ca7-190e-4de7-a983-94cc74441746.png)
 ![微信图片_20220412170008](https://user-images.githubusercontent.com/94828428/162938993-cae9e042-b63e-4302-946d-e6494d48ef62.jpg)
 ![微信截图_20220412165112](https://user-images.githubusercontent.com/94828428/162939156-ec634ca9-aa86-498d-9097-dc2031f0b01d.png)
 
@@ -26,3 +25,8 @@ PS类：PS入门、PS人像精修、PS大神、PS字体、PS笔刷、PS神器、
 PPT类：中国风PPT模板、日系PPT模板、和风PPT模板、极简PPT模板、刺绣风PPT模板、民族风PPT模板、高级脸PPT模板、粉色系PPT模板、炫彩风PPT模板、禅系PPT模板、灰色系PPT模板、星空风PPT模板、科技风PPT模板、水彩风PPT模板、红专PPT模板、商业计划书PPT模板、招新PPT模板、北欧风PPT模板、杂志风PPT模板、民族风PPT模板、工作总结PPT模板...
 
 不断更新中...
+
+
+关注公众号回复：网盘资源，即可拥有最新最全的2023年考研和2022年考证的资源。
+![qrcode_for_gh_f2069ff26361_1280](https://user-images.githubusercontent.com/94828428/162940577-d0eb537d-617c-42c0-ac3e-9a006e5e8c5d.jpg)
+
